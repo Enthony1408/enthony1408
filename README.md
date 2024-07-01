@@ -1,4 +1,4 @@
-## salve meu nobre, oque o traz aqui?
+## salve meu nobre, precisa de ajuda?
 °Meu nome e carlos enthony
 
 °Estou estudando alura junto de um professor chamado bruno
