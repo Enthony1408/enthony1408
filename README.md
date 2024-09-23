@@ -7,5 +7,5 @@
 
 °Estou utilizando esse espaço para minha organizao e compartilhamento dos meus projetos desenvolvidos
 
-## Se vc quiser entra em contato comigo me chamo por aqui
+## Se vc quiser entra em contato comigo me chame por aqui
 @enthonycosta14@gmail.com
